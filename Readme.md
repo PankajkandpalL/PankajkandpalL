@@ -57,7 +57,6 @@ Please feel free to clone/fork projects, raise issues and submit PRs if you thin
 
 [![Github](https://camo.githubusercontent.com/297212f5cfd71f14f1a774a22bfd24b24bfa996aa72f4d941f790c8606ca8f0d/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f4769744875622d2532333132313030452e7376673f267374796c653d666f722d7468652d6261646765266c6f676f3d476974687562266c6f676f436f6c6f723d7768697465)](https://github.com/PankajkandpalL) [![gmail](https://camo.githubusercontent.com/2f0cc1bf40bca5ac68be6f614a117e8ebb28cee0c54ff666133971a962bfc902/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f676d61696c2d2532333030303030302e7376673f267374796c653d666f722d7468652d6261646765266c6f676f3d676d61696c266c6f676f436f6c6f723d726564)](https://github.com/PankajkandpalL/PankajkandpalL/blob/main/pankajkandpal5602@gmail.com?hl=en)
 
-[![](https://camo.githubusercontent.com/ec0df7b334d15078e980be8f26f35f1bd6f004eaa4a121db42fed361360c1817/68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f4c6e516a7057614f4e386e68723231764e572f67697068792e676966)]
 <img src="https://media.giphy.com/media/LnQjpWaON8nhr21vNW/giphy.gif" width="60">
 
 *I love connecting with different people so if you want to say hi, I'll be happy to meet you more! 😊*
