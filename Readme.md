@@ -1,4 +1,4 @@
-[](https://github.com/PankajkandpalL#hey-there-im-vaishali--nice-to-see-you)Hey there, I'm [Pankaj](https://github.com/PankajkandpalL) [![](https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif)](https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif) Nice to see you.
+[](https://github.com/PankajkandpalL#hey-there-im-vaishali--nice-to-see-you)Hey there, I'm [Pankaj](https://github.com/PankajkandpalL) <img src="https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif" width="60"> (https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif) Nice to see you.
 =====================================================================================================================================================================================================================================================================================================================
 
 [](https://github.com/PankajkandpalL#fullstack-developer-from-india-%EF%B8%8F-)FullStack developer from India. ❤️
